@@ -1,3 +1,3 @@
 # SHUAN
 
-Hi, I am Shuan.
+Hi, I am Shuan. I don't like Terry.
